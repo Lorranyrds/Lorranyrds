@@ -1,5 +1,5 @@
 ### OLÁ! eu sou a Lorrany!
- 💻- Estudando HTML5, CSS3 e JAVASCRYPT
+ 💻- Dev Padawan
  
 👩🏻- Pronome: Ela/Dela
  
