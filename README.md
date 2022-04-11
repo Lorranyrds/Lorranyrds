@@ -1,4 +1,4 @@
-### OLÁ! eu sou a Lorrany!
+### Olá! eu sou a Lorrany!
  💻- Dev Padawan
  
 👩🏻- Pronome: Ela/Dela
